@@ -1,1 +1,1 @@
-https://directory-technologies-displayed-controlling.trycloudflare.com
+https://wanted-ampland-plasma-penguin.trycloudflare.com
