@@ -1,1 +1,1 @@
-https://sympathy-assessment-supporting-img.trycloudflare.com
+https://rider-heating-computing-recommended.trycloudflare.com
