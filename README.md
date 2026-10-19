@@ -1,1 +1,1 @@
-https://ceo-long-demonstrate-range.trycloudflare.com
+https://institutes-benjamin-aruba-california.trycloudflare.com
