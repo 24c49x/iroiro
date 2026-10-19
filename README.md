@@ -1,1 +1,1 @@
-https://genre-median-tuesday-else.trycloudflare.com
+https://suzuki-parts-pensions-ware.trycloudflare.com
