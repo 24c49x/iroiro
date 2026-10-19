@@ -1,1 +1,1 @@
-https://sun-beijing-rewards-throws.trycloudflare.com
+https://cab-cat-slope-commercial.trycloudflare.com
