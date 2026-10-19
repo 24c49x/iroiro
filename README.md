@@ -1,1 +1,1 @@
-https://rider-heating-computing-recommended.trycloudflare.com
+https://slides-org-fewer-smtp.trycloudflare.com
