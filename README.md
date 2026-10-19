@@ -1,1 +1,1 @@
-https://casual-bangkok-success-tool.trycloudflare.com
+https://genre-median-tuesday-else.trycloudflare.com
