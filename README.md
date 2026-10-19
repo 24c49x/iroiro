@@ -1,1 +1,1 @@
-https://chan-created-gdp-induction.trycloudflare.com
+https://predict-divisions-came-promised.trycloudflare.com
