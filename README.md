@@ -1,1 +1,1 @@
-https://rosa-carbon-smith-tough.trycloudflare.com
+https://casual-bangkok-success-tool.trycloudflare.com
