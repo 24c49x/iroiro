@@ -1,1 +1,1 @@
-https://lucy-tire-dare-cafe.trycloudflare.com
+https://once-platform-beverages-supplied.trycloudflare.com
