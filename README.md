@@ -1,1 +1,1 @@
-https://rec-angeles-component-submissions.trycloudflare.com
+https://interval-shipping-vocational-helping.trycloudflare.com
