@@ -1,1 +1,1 @@
-https://fuel-civilian-adding-hosting.trycloudflare.com
+https://rec-angeles-component-submissions.trycloudflare.com
