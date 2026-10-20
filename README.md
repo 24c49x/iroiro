@@ -1,1 +1,1 @@
-https://vsnet-gray-browser-gtk.trycloudflare.com
+https://plots-military-indirect-difficulties.trycloudflare.com
