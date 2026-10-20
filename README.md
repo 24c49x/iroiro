@@ -1,1 +1,1 @@
-https://once-platform-beverages-supplied.trycloudflare.com
+https://fog-ceo-bases-deutschland.trycloudflare.com
