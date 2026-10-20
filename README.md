@@ -1,1 +1,1 @@
-https://preliminary-initial-distance-cube.trycloudflare.com
+https://cannon-dependence-paradise-centers.trycloudflare.com
