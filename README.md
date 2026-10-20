@@ -1,1 +1,1 @@
-https://curve-blacks-double-builds.trycloudflare.com
+https://parameter-donation-intend-perfect.trycloudflare.com
