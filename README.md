@@ -1,1 +1,1 @@
-https://martial-stem-assume-clinic.trycloudflare.com
+https://shower-net-known-proper.trycloudflare.com
