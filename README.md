@@ -1,1 +1,1 @@
-https://organic-der-vegetation-metals.trycloudflare.com
+https://fuel-civilian-adding-hosting.trycloudflare.com
