@@ -1,1 +1,1 @@
-https://cons-hotel-educational-trembl.trycloudflare.com
+https://pickup-pockets-tubes-settlement.trycloudflare.com
