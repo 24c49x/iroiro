@@ -1,1 +1,1 @@
-https://ltd-racks-instrumentation-interaction.trycloudflare.com
+https://curve-blacks-double-builds.trycloudflare.com
