@@ -1,1 +1,1 @@
-https://beta-hotels-und-interior.trycloudflare.com
+https://export-kentucky-aka-fantastic.trycloudflare.com
