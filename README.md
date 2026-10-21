@@ -1,1 +1,1 @@
-https://rankings-january-ton-cas.trycloudflare.com
+https://independent-killing-potato-desktop.trycloudflare.com
