@@ -1,1 +1,1 @@
-https://developmental-gnu-union-patent.trycloudflare.com
+https://codes-jokes-emails-justify.trycloudflare.com
