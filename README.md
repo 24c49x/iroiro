@@ -1,1 +1,1 @@
-https://fred-consumer-roster-lemon.trycloudflare.com
+https://beta-hotels-und-interior.trycloudflare.com
