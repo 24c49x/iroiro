@@ -1,1 +1,1 @@
-https://selections-celebrate-everywhere-cowboy.trycloudflare.com
+https://finally-logo-versions-directory.trycloudflare.com
