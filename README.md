@@ -1,1 +1,1 @@
-https://finally-logo-versions-directory.trycloudflare.com
+https://other-forth-portal-bow.trycloudflare.com
