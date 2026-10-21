@@ -1,1 +1,1 @@
-https://jay-identity-pull-halifax.trycloudflare.com
+https://rankings-january-ton-cas.trycloudflare.com
