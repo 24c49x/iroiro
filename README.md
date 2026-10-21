@@ -1,1 +1,1 @@
-https://nov-administrators-lat-grab.trycloudflare.com
+https://brought-makers-enemies-soma.trycloudflare.com
