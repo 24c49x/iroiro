@@ -1,1 +1,1 @@
-https://million-constraints-relevant-announcements.trycloudflare.com
+https://card-scheme-assistance-tutorials.trycloudflare.com
