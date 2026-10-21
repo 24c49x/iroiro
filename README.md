@@ -1,1 +1,1 @@
-https://guide-bat-diploma-endif.trycloudflare.com
+https://developmental-gnu-union-patent.trycloudflare.com
