@@ -1,1 +1,1 @@
-https://web-need-invest-dimensions.trycloudflare.com
+https://announced-infinite-scholar-hunt.trycloudflare.com
