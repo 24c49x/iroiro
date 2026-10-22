@@ -1,1 +1,1 @@
-https://bend-newfoundland-either-futures.trycloudflare.com
+https://dictionaries-reporting-hindu-projection.trycloudflare.com
