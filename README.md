@@ -1,1 +1,1 @@
-https://laws-scales-offers-apparatus.trycloudflare.com
+https://assists-offer-shield-celebration.trycloudflare.com
