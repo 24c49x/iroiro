@@ -1,1 +1,1 @@
-https://range-instantly-roulette-houses.trycloudflare.com
+https://bend-newfoundland-either-futures.trycloudflare.com
