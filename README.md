@@ -1,1 +1,1 @@
-https://dictionaries-reporting-hindu-projection.trycloudflare.com
+https://distant-nation-flavor-belle.trycloudflare.com
