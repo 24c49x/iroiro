@@ -1,1 +1,1 @@
-https://guardian-come-seventh-outlets.trycloudflare.com
+https://beta-ready-flux-devoted.trycloudflare.com
