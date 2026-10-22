@@ -1,1 +1,1 @@
-https://beta-ready-flux-devoted.trycloudflare.com
+https://marked-seattle-mud-fifty.trycloudflare.com
