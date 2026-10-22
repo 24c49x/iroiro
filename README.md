@@ -1,1 +1,1 @@
-https://lightning-coating-griffin-games.trycloudflare.com
+https://creations-natural-powell-every.trycloudflare.com
