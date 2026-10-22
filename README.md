@@ -1,1 +1,1 @@
-https://cakes-labs-care-discretion.trycloudflare.com
+https://solo-sculpture-opens-superb.trycloudflare.com
