@@ -1,1 +1,1 @@
-https://struct-ministries-return-plugins.trycloudflare.com
+https://stored-showing-recovered-individual.trycloudflare.com
