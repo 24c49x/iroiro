@@ -1,1 +1,1 @@
-https://lung-artistic-freeware-believed.trycloudflare.com
+https://criterion-hong-survive-mask.trycloudflare.com
