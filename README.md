@@ -1,1 +1,1 @@
-https://symantec-bingo-commission-picking.trycloudflare.com
+https://objective-msgstr-outlined-breed.trycloudflare.com
