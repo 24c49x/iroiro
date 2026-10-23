@@ -1,1 +1,1 @@
-https://criterion-hong-survive-mask.trycloudflare.com
+https://symantec-bingo-commission-picking.trycloudflare.com
