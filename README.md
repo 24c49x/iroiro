@@ -1,1 +1,1 @@
-https://guy-sending-apparatus-sure.trycloudflare.com
+https://robot-banner-faq-cooperation.trycloudflare.com
