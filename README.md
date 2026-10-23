@@ -1,1 +1,1 @@
-https://str-fuzzy-inter-method.trycloudflare.com
+https://betting-revision-rev-abu.trycloudflare.com
