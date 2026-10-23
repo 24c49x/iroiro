@@ -1,1 +1,1 @@
-https://robot-banner-faq-cooperation.trycloudflare.com
+https://lung-artistic-freeware-believed.trycloudflare.com
