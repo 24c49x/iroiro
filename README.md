@@ -1,1 +1,1 @@
-https://station-headphones-ethernet-urban.trycloudflare.com
+https://str-fuzzy-inter-method.trycloudflare.com
