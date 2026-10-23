@@ -1,1 +1,1 @@
-https://expanded-gis-rings-grand.trycloudflare.com
+https://euros-machines-deny-leslie.trycloudflare.com
