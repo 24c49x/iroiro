@@ -1,1 +1,1 @@
-https://injuries-soccer-estimation-entrepreneur.trycloudflare.com
+https://euros-contributors-rfc-paso.trycloudflare.com
