@@ -1,1 +1,1 @@
-https://ana-kenny-puerto-arizona.trycloudflare.com
+https://struct-ministries-return-plugins.trycloudflare.com
