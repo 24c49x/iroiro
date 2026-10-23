@@ -1,1 +1,1 @@
-https://exports-vhs-gen-roads.trycloudflare.com
+https://injuries-soccer-estimation-entrepreneur.trycloudflare.com
