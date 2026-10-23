@@ -1,1 +1,1 @@
-https://spectacular-builder-integration-actions.trycloudflare.com
+https://thinking-soldier-cancel-acute.trycloudflare.com
