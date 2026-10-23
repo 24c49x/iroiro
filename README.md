@@ -1,1 +1,1 @@
-https://euros-machines-deny-leslie.trycloudflare.com
+https://algorithm-answering-veterans-dense.trycloudflare.com
