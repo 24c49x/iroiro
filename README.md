@@ -1,1 +1,1 @@
-https://ideas-votes-returning-seven.trycloudflare.com
+https://ladies-rain-mention-lance.trycloudflare.com
