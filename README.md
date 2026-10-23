@@ -1,1 +1,1 @@
-https://gratis-deals-citizen-assessed.trycloudflare.com
+https://spectacular-builder-integration-actions.trycloudflare.com
