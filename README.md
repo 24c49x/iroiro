@@ -1,1 +1,1 @@
-https://papers-roots-author-label.trycloudflare.com
+https://curriculum-sealed-day-dice.trycloudflare.com
