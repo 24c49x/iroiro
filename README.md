@@ -1,1 +1,1 @@
-https://hawaiian-led-shortcuts-curious.trycloudflare.com
+https://proudly-prefer-frontier-commands.trycloudflare.com
