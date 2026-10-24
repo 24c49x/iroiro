@@ -1,1 +1,1 @@
-https://assembled-dried-convention-offline.trycloudflare.com
+https://ordering-issn-pepper-races.trycloudflare.com
