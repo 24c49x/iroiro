@@ -1,1 +1,1 @@
-https://smithsonian-intelligence-ftp-former.trycloudflare.com
+https://heavily-magnificent-calibration-virtually.trycloudflare.com
