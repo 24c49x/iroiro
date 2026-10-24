@@ -1,1 +1,1 @@
-https://promises-ruled-assign-efforts.trycloudflare.com
+https://officials-fragrance-assistant-grand.trycloudflare.com
