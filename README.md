@@ -1,1 +1,1 @@
-https://math-officer-time-johnny.trycloudflare.com
+https://naval-jesus-newsletters-questions.trycloudflare.com
