@@ -1,1 +1,1 @@
-https://domestic-dale-increasingly-recommends.trycloudflare.com
+https://keno-vocational-length-basename.trycloudflare.com
