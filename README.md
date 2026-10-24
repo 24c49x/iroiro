@@ -1,1 +1,1 @@
-https://chat-tracks-detect-apparently.trycloudflare.com
+https://register-divisions-aye-deutsch.trycloudflare.com
