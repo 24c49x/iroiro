@@ -1,1 +1,1 @@
-https://opened-spatial-absence-consensus.trycloudflare.com
+https://chat-tracks-detect-apparently.trycloudflare.com
