@@ -1,1 +1,1 @@
-https://proudly-prefer-frontier-commands.trycloudflare.com
+https://occur-encouraging-commerce-stated.trycloudflare.com
