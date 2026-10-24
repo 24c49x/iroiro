@@ -1,1 +1,1 @@
-https://register-divisions-aye-deutsch.trycloudflare.com
+https://character-mon-ringtone-committees.trycloudflare.com
