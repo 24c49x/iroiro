@@ -1,1 +1,1 @@
-https://rica-suggestions-identifying-tanks.trycloudflare.com
+https://smithsonian-intelligence-ftp-former.trycloudflare.com
