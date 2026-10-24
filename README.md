@@ -1,1 +1,1 @@
-https://except-medal-winner-passed.trycloudflare.com
+https://opened-spatial-absence-consensus.trycloudflare.com
