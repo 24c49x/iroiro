@@ -1,1 +1,1 @@
-https://diana-growth-verde-translation.trycloudflare.com
+https://momentum-trading-activation-sponsored.trycloudflare.com
