@@ -1,1 +1,1 @@
-https://palestinian-enough-leone-objective.trycloudflare.com
+https://inter-rentals-coated-stud.trycloudflare.com
