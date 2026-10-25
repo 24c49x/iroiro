@@ -1,1 +1,1 @@
-https://app-arab-equally-implies.trycloudflare.com
+https://decide-naturals-enjoy-capture.trycloudflare.com
