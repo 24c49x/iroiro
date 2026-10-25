@@ -1,1 +1,1 @@
-https://signal-mixed-costume-speaks.trycloudflare.com
+https://cruise-cancer-rica-reveal.trycloudflare.com
