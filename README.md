@@ -1,1 +1,1 @@
-https://privacy-diego-aluminium-hourly.trycloudflare.com
+https://signal-mixed-costume-speaks.trycloudflare.com
