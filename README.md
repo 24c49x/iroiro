@@ -1,1 +1,1 @@
-https://decide-naturals-enjoy-capture.trycloudflare.com
+https://privacy-diego-aluminium-hourly.trycloudflare.com
