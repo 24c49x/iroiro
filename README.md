@@ -1,1 +1,1 @@
-https://registered-built-fathers-fancy.trycloudflare.com
+https://few-turns-arrives-logical.trycloudflare.com
