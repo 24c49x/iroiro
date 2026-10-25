@@ -1,1 +1,1 @@
-https://basically-slope-cpu-fruits.trycloudflare.com
+https://produced-gonna-crossing-mls.trycloudflare.com
