@@ -1,1 +1,1 @@
-https://shown-nam-press-workflow.trycloudflare.com
+https://app-arab-equally-implies.trycloudflare.com
