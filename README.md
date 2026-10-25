@@ -1,1 +1,1 @@
-https://handmade-distributors-scuba-achievements.trycloudflare.com
+https://palestinian-enough-leone-objective.trycloudflare.com
