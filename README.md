@@ -1,1 +1,1 @@
-https://cultures-entities-nevertheless-telescope.trycloudflare.com
+https://attitudes-protection-tickets-someone.trycloudflare.com
