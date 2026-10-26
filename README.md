@@ -1,1 +1,1 @@
-https://briefing-apartment-licenses-different.trycloudflare.com
+https://cultures-entities-nevertheless-telescope.trycloudflare.com
