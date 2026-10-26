@@ -1,1 +1,1 @@
-https://vhs-oriented-technical-continent.trycloudflare.com
+https://mortality-active-hear-housing.trycloudflare.com
