@@ -1,1 +1,1 @@
-https://flooring-natural-broken-doctrine.trycloudflare.com
+https://journey-firewire-reasonably-exports.trycloudflare.com
