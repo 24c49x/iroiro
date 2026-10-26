@@ -1,1 +1,1 @@
-https://anniversary-notices-rainbow-equal.trycloudflare.com
+https://mean-harper-yacht-rpg.trycloudflare.com
