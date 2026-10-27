@@ -1,1 +1,1 @@
-https://receivers-powers-finger-processors.trycloudflare.com
+https://warcraft-resume-fan-astronomy.trycloudflare.com
