@@ -1,1 +1,1 @@
-https://restoration-oriented-cold-biggest.trycloudflare.com
+https://climate-warrior-tracking-guy.trycloudflare.com
