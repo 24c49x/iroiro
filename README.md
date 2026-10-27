@@ -1,1 +1,1 @@
-https://inherited-females-shepherd-hebrew.trycloudflare.com
+https://install-enrollment-resources-fitting.trycloudflare.com
