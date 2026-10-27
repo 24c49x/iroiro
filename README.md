@@ -1,1 +1,1 @@
-https://travel-karl-timing-bands.trycloudflare.com
+https://liberty-pushed-powerseller-aye.trycloudflare.com
