@@ -1,1 +1,1 @@
-https://colon-tel-directors-airline.trycloudflare.com
+https://precipitation-bios-tap-geography.trycloudflare.com
