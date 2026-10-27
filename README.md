@@ -1,1 +1,1 @@
-https://obituaries-gardens-graduated-games.trycloudflare.com
+https://batteries-wifi-new-implies.trycloudflare.com
