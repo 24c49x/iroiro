@@ -1,1 +1,1 @@
-https://batteries-wifi-new-implies.trycloudflare.com
+https://hobbies-hometown-tractor-fundamental.trycloudflare.com
