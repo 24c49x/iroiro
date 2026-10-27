@@ -1,1 +1,1 @@
-https://trinity-concentration-winter-select.trycloudflare.com
+https://clarke-publication-calculator-dawn.trycloudflare.com
