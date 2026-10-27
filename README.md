@@ -1,1 +1,1 @@
-https://precipitation-redeem-legs-profession.trycloudflare.com
+https://receivers-powers-finger-processors.trycloudflare.com
