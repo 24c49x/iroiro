@@ -1,1 +1,1 @@
-https://thinkpad-doom-sand-rise.trycloudflare.com
+https://termination-highland-independent-britain.trycloudflare.com
