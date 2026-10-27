@@ -1,1 +1,1 @@
-https://regional-listprice-arrival-strong.trycloudflare.com
+https://puts-undefined-task-majority.trycloudflare.com
