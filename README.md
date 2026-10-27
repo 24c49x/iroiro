@@ -1,1 +1,1 @@
-https://warcraft-resume-fan-astronomy.trycloudflare.com
+https://regional-listprice-arrival-strong.trycloudflare.com
