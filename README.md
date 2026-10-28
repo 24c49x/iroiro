@@ -1,1 +1,1 @@
-https://stands-tend-changing-civil.trycloudflare.com
+https://bool-window-ranking-underground.trycloudflare.com
