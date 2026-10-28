@@ -1,1 +1,1 @@
-https://carrier-exist-translator-dosage.trycloudflare.com
+https://accounting-parish-seventh-player.trycloudflare.com
