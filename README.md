@@ -1,1 +1,1 @@
-https://breeds-mercy-phrase-change.trycloudflare.com
+https://experiment-version-minute-operating.trycloudflare.com
