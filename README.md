@@ -1,1 +1,1 @@
-https://embassy-knight-selected-movement.trycloudflare.com
+https://inkjet-duty-blocked-org.trycloudflare.com
