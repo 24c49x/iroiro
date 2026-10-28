@@ -1,1 +1,1 @@
-https://transition-well-gamecube-tunes.trycloudflare.com
+https://genre-watch-simultaneously-division.trycloudflare.com
