@@ -1,1 +1,1 @@
-https://bool-window-ranking-underground.trycloudflare.com
+https://possession-tuesday-rocky-sticker.trycloudflare.com
