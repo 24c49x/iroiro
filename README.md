@@ -1,1 +1,1 @@
-https://patterns-forming-open-dont.trycloudflare.com
+https://coal-wages-ohio-karl.trycloudflare.com
