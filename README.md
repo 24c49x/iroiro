@@ -1,1 +1,1 @@
-https://shapes-fruits-event-publishing.trycloudflare.com
+https://hazards-stroke-print-substance.trycloudflare.com
