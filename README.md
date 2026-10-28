@@ -1,1 +1,1 @@
-https://semi-camera-albums-ellis.trycloudflare.com
+https://safely-automated-televisions-nav.trycloudflare.com
