@@ -1,1 +1,1 @@
-https://louis-decent-doctrine-mode.trycloudflare.com
+https://ancient-radiation-signatures-byte.trycloudflare.com
