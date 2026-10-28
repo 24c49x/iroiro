@@ -1,1 +1,1 @@
-https://mailman-necessarily-eagle-seems.trycloudflare.com
+https://shapes-fruits-event-publishing.trycloudflare.com
