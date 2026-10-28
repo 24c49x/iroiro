@@ -1,1 +1,1 @@
-https://aluminum-chambers-message-joint.trycloudflare.com
+https://stands-tend-changing-civil.trycloudflare.com
