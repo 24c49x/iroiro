@@ -1,1 +1,1 @@
-https://experiment-version-minute-operating.trycloudflare.com
+https://suit-basement-point-zoo.trycloudflare.com
