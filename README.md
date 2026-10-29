@@ -1,1 +1,1 @@
-https://shots-counsel-cuisine-valve.trycloudflare.com
+https://skins-breathing-generation-hosted.trycloudflare.com
