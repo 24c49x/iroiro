@@ -1,1 +1,1 @@
-https://winds-indicated-pts-hrs.trycloudflare.com
+https://sweet-added-rome-hunter.trycloudflare.com
