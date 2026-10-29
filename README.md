@@ -1,1 +1,1 @@
-https://broadcast-famous-abstract-machinery.trycloudflare.com
+https://winds-indicated-pts-hrs.trycloudflare.com
