@@ -1,1 +1,1 @@
-https://burst-establish-ambassador-enabling.trycloudflare.com
+https://belly-pdt-wanted-skiing.trycloudflare.com
