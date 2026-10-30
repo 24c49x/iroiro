@@ -1,1 +1,1 @@
-https://basename-prix-showers-sensor.trycloudflare.com
+https://five-builders-bean-fashion.trycloudflare.com
