@@ -1,1 +1,1 @@
-https://panel-graphics-salem-occupational.trycloudflare.com
+https://basename-prix-showers-sensor.trycloudflare.com
