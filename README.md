@@ -1,1 +1,1 @@
-https://aberdeen-population-diameter-count.trycloudflare.com
+https://both-smoking-ccd-commodities.trycloudflare.com
