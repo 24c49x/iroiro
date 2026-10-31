@@ -1,1 +1,1 @@
-https://derek-weekly-disclose-non.trycloudflare.com
+https://discs-nightlife-information-adapter.trycloudflare.com
