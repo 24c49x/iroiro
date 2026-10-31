@@ -1,1 +1,1 @@
-https://both-smoking-ccd-commodities.trycloudflare.com
+https://route-teach-cookie-nylon.trycloudflare.com
