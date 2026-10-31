@@ -1,1 +1,1 @@
-https://discs-nightlife-information-adapter.trycloudflare.com
+https://musical-sherman-moms-selling.trycloudflare.com
