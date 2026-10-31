@@ -1,1 +1,1 @@
-https://halifax-gathered-acting-strings.trycloudflare.com
+https://favorite-boot-switching-laid.trycloudflare.com
