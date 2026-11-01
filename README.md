@@ -1,1 +1,1 @@
-https://ham-amy-monkey-acres.trycloudflare.com
+https://third-rules-tourism-lessons.trycloudflare.com
