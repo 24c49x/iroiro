@@ -1,1 +1,1 @@
-https://third-rules-tourism-lessons.trycloudflare.com
+https://skin-precise-ping-hoped.trycloudflare.com
