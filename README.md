@@ -1,1 +1,1 @@
-https://information-communist-extends-adrian.trycloudflare.com
+https://indexes-stress-thin-wishlist.trycloudflare.com
