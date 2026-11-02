@@ -1,1 +1,1 @@
-https://strap-allowed-manufacturer-entitled.trycloudflare.com
+https://abroad-preferred-levy-composer.trycloudflare.com
