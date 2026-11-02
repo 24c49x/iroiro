@@ -1,1 +1,1 @@
-https://batch-about-attractive-mating.trycloudflare.com
+https://pure-neither-shop-algorithms.trycloudflare.com
