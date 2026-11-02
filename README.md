@@ -1,1 +1,1 @@
-https://cos-stars-mortgages-finals.trycloudflare.com
+https://alike-stages-compound-obligations.trycloudflare.com
