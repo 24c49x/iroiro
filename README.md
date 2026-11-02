@@ -1,1 +1,1 @@
-https://distributed-concept-second-edition.trycloudflare.com
+https://gamecube-twenty-definitely-retrieve.trycloudflare.com
