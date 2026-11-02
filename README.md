@@ -1,1 +1,1 @@
-https://var-inspired-targets-gregory.trycloudflare.com
+https://goes-dive-ratings-stan.trycloudflare.com
