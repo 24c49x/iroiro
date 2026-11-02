@@ -1,1 +1,1 @@
-https://find-strand-celtic-files.trycloudflare.com
+https://strap-allowed-manufacturer-entitled.trycloudflare.com
