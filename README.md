@@ -1,1 +1,1 @@
-https://der-tea-exists-void.trycloudflare.com
+https://alan-lance-instructor-labeled.trycloudflare.com
