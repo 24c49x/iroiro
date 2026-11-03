@@ -1,1 +1,1 @@
-https://adjacent-butter-trainer-added.trycloudflare.com
+https://beans-mae-talks-checks.trycloudflare.com
