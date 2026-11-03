@@ -1,1 +1,1 @@
-https://mambo-minute-socks-higher.trycloudflare.com
+https://licence-tuner-comfort-cheese.trycloudflare.com
