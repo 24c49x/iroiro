@@ -1,1 +1,1 @@
-https://alan-lance-instructor-labeled.trycloudflare.com
+https://schemes-polished-maine-tones.trycloudflare.com
