@@ -1,1 +1,1 @@
-https://gmc-freeze-thu-restored.trycloudflare.com
+https://interaction-junior-latin-rising.trycloudflare.com
