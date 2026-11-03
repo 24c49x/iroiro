@@ -1,1 +1,1 @@
-https://beans-mae-talks-checks.trycloudflare.com
+https://notes-multi-vocabulary-naturals.trycloudflare.com
