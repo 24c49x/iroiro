@@ -1,1 +1,1 @@
-https://pubs-franchise-park-del.trycloudflare.com
+https://gmc-freeze-thu-restored.trycloudflare.com
