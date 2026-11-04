@@ -1,1 +1,1 @@
-https://breakdown-analyzed-wine-sensors.trycloudflare.com
+https://cams-discrimination-temperatures-delayed.trycloudflare.com
