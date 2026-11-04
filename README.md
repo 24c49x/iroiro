@@ -1,1 +1,1 @@
-https://swaziland-chorus-trader-region.trycloudflare.com
+https://formula-tap-bathrooms-gateway.trycloudflare.com
