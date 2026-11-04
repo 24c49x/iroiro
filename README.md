@@ -1,1 +1,1 @@
-https://wait-powerseller-depth-meanwhile.trycloudflare.com
+https://glucose-endorsed-very-hardware.trycloudflare.com
