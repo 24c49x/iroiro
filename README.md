@@ -1,1 +1,1 @@
-https://instruction-travelling-figures-dash.trycloudflare.com
+https://swaziland-chorus-trader-region.trycloudflare.com
