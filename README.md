@@ -1,1 +1,1 @@
-https://cams-discrimination-temperatures-delayed.trycloudflare.com
+https://titans-lookup-moscow-digital.trycloudflare.com
