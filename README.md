@@ -1,1 +1,1 @@
-https://organisations-jesse-und-detector.trycloudflare.com
+https://prices-seats-ceo-moderator.trycloudflare.com
