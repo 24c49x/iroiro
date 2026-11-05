@@ -1,1 +1,1 @@
-https://contributors-establish-royal-compatibility.trycloudflare.com
+https://gain-empire-brain-loves.trycloudflare.com
