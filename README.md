@@ -1,1 +1,1 @@
-https://syracuse-stockholm-thee-recreational.trycloudflare.com
+https://treat-belongs-tuition-bizrate.trycloudflare.com
