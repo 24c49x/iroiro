@@ -1,1 +1,1 @@
-https://treat-belongs-tuition-bizrate.trycloudflare.com
+https://better-popularity-miss-ken.trycloudflare.com
