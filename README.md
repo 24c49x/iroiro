@@ -1,1 +1,1 @@
-https://better-popularity-miss-ken.trycloudflare.com
+https://singh-geological-concept-for.trycloudflare.com
