@@ -1,1 +1,1 @@
-https://sofa-prototype-discussing-bidding.trycloudflare.com
+https://latina-friday-bikini-voted.trycloudflare.com
