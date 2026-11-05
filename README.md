@@ -1,1 +1,1 @@
-https://lang-starter-jones-sole.trycloudflare.com
+https://wedding-quickly-syndicate-stylus.trycloudflare.com
