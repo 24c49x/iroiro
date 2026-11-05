@@ -1,1 +1,1 @@
-https://customize-trust-queen-designated.trycloudflare.com
+https://syracuse-stockholm-thee-recreational.trycloudflare.com
