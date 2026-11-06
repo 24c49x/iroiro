@@ -1,1 +1,1 @@
-https://singh-geological-concept-for.trycloudflare.com
+https://departure-publicity-gourmet-accurate.trycloudflare.com
