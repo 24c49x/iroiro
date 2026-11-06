@@ -1,1 +1,1 @@
-https://insider-wal-buf-educators.trycloudflare.com
+https://prices-profiles-managing-celebrate.trycloudflare.com
