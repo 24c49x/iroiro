@@ -1,1 +1,1 @@
-https://commonwealth-switching-hwy-colleague.trycloudflare.com
+https://foo-voting-sie-headline.trycloudflare.com
