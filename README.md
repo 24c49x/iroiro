@@ -1,1 +1,1 @@
-https://hair-exec-creator-sends.trycloudflare.com
+https://beans-owners-kingdom-thoroughly.trycloudflare.com
