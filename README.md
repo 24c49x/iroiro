@@ -1,1 +1,1 @@
-https://lightning-postage-invoice-why.trycloudflare.com
+https://mild-casino-score-continent.trycloudflare.com
