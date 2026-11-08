@@ -1,1 +1,1 @@
-https://rod-bradley-attempted-bachelor.trycloudflare.com
+https://application-mind-sheer-peer.trycloudflare.com
