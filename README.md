@@ -1,1 +1,1 @@
-https://thumbzilla-summaries-arrangements-page.trycloudflare.com
+https://rounds-bowling-exclude-session.trycloudflare.com
