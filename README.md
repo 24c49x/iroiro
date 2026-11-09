@@ -1,1 +1,1 @@
-https://kenny-cst-ones-cal.trycloudflare.com
+https://lottery-kid-ratios-ticket.trycloudflare.com
