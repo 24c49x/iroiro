@@ -1,1 +1,1 @@
-https://athletics-suspended-thumb-attract.trycloudflare.com
+https://disciplines-printer-satellite-nobody.trycloudflare.com
