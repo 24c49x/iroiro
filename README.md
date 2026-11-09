@@ -1,1 +1,1 @@
-https://reader-parts-apt-fraction.trycloudflare.com
+https://applicants-hong-aluminium-figured.trycloudflare.com
