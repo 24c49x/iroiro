@@ -1,1 +1,1 @@
-https://bbs-featuring-explains-murphy.trycloudflare.com
+https://joshua-battery-approximate-rss.trycloudflare.com
