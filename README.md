@@ -1,1 +1,1 @@
-https://unfortunately-deposits-seats-solution.trycloudflare.com
+https://stephen-setup-compression-detect.trycloudflare.com
