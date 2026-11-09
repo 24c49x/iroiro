@@ -1,1 +1,1 @@
-https://lottery-kid-ratios-ticket.trycloudflare.com
+https://unfortunately-deposits-seats-solution.trycloudflare.com
