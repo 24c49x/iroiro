@@ -1,1 +1,1 @@
-https://sponsor-joy-preview-adsl.trycloudflare.com
+https://herb-exterior-reload-nato.trycloudflare.com
