@@ -1,1 +1,1 @@
-https://tasks-searching-treasure-online.trycloudflare.com
+https://curious-manager-club-football.trycloudflare.com
