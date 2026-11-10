@@ -1,1 +1,1 @@
-https://loading-assets-ryan-crossing.trycloudflare.com
+https://tasks-searching-treasure-online.trycloudflare.com
