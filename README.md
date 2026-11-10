@@ -1,1 +1,1 @@
-https://vista-til-pump-distributor.trycloudflare.com
+https://loading-assets-ryan-crossing.trycloudflare.com
