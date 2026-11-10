@@ -1,1 +1,1 @@
-https://curious-manager-club-football.trycloudflare.com
+https://sponsor-joy-preview-adsl.trycloudflare.com
