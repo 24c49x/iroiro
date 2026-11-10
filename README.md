@@ -1,1 +1,1 @@
-https://adjust-activity-frozen-beside.trycloudflare.com
+https://administration-caused-recovered-hopefully.trycloudflare.com
