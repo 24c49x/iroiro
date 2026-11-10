@@ -1,1 +1,1 @@
-https://graduate-designation-weeks-authorized.trycloudflare.com
+https://founded-want-businesses-vintage.trycloudflare.com
