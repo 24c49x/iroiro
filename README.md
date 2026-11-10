@@ -1,1 +1,1 @@
-https://trademarks-recordings-lane-pearl.trycloudflare.com
+https://graduate-designation-weeks-authorized.trycloudflare.com
