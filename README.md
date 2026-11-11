@@ -1,1 +1,1 @@
-https://companion-relationship-spreading-polished.trycloudflare.com
+https://secrets-losing-safari-though.trycloudflare.com
