@@ -1,1 +1,1 @@
-https://area-singles-occupation-distributor.trycloudflare.com
+https://hudson-follows-translator-extension.trycloudflare.com
