@@ -1,1 +1,1 @@
-https://mode-revenues-next-dicke.trycloudflare.com
+https://revenues-dialog-classic-personals.trycloudflare.com
