@@ -1,1 +1,1 @@
-https://pennsylvania-puzzles-trusted-join.trycloudflare.com
+https://sterling-statutes-dry-cal.trycloudflare.com
