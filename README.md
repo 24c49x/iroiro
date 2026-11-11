@@ -1,1 +1,1 @@
-https://growth-translations-query-employee.trycloudflare.com
+https://mode-revenues-next-dicke.trycloudflare.com
