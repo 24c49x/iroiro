@@ -1,1 +1,1 @@
-https://arm-retrieval-celebrate-freight.trycloudflare.com
+https://growth-translations-query-employee.trycloudflare.com
