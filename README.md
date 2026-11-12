@@ -1,1 +1,1 @@
-https://establish-filter-presently-abilities.trycloudflare.com
+https://flux-comfort-urls-cables.trycloudflare.com
