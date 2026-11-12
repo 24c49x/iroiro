@@ -1,1 +1,1 @@
-https://george-beliefs-soft-use.trycloudflare.com
+https://quad-kerry-capital-owns.trycloudflare.com
