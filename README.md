@@ -1,1 +1,1 @@
-https://atlantic-whale-shorts-impaired.trycloudflare.com
+https://seriously-satisfy-slot-flux.trycloudflare.com
