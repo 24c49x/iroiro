@@ -1,1 +1,1 @@
-https://cases-original-standing-column.trycloudflare.com
+https://exception-safari-hundred-stood.trycloudflare.com
