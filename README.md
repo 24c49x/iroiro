@@ -1,1 +1,1 @@
-https://daughters-walt-dealing-complex.trycloudflare.com
+https://cooperation-parliamentary-receptors-cursor.trycloudflare.com
