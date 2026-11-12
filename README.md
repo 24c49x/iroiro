@@ -1,1 +1,1 @@
-https://exception-safari-hundred-stood.trycloudflare.com
+https://stated-packets-management-driver.trycloudflare.com
