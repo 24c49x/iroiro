@@ -1,1 +1,1 @@
-https://bull-atlanta-anonymous-role.trycloudflare.com
+https://unless-talented-only-template.trycloudflare.com
