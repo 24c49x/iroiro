@@ -1,1 +1,1 @@
-https://herb-crafts-retrieve-actual.trycloudflare.com
+https://catch-unavailable-spec-conflicts.trycloudflare.com
