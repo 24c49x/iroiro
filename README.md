@@ -1,1 +1,1 @@
-https://flux-comfort-urls-cables.trycloudflare.com
+https://atlantic-whale-shorts-impaired.trycloudflare.com
