@@ -1,1 +1,1 @@
-https://illustration-biblical-promotions-preferred.trycloudflare.com
+https://translator-kilometers-social-kids.trycloudflare.com
