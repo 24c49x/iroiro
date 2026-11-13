@@ -1,1 +1,1 @@
-https://classes-ave-commodity-paintball.trycloudflare.com
+https://linear-counsel-vampire-ssl.trycloudflare.com
