@@ -1,1 +1,1 @@
-https://formed-birth-tablet-recorders.trycloudflare.com
+https://classes-ave-commodity-paintball.trycloudflare.com
