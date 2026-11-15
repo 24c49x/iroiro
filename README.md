@@ -1,1 +1,1 @@
-https://passes-mailman-dishes-pdas.trycloudflare.com
+https://batch-janet-wealth-position.trycloudflare.com
