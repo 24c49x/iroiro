@@ -1,1 +1,1 @@
-https://pants-cholesterol-habits-neutral.trycloudflare.com
+https://collaboration-dist-node-soc.trycloudflare.com
