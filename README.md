@@ -1,1 +1,1 @@
-https://phenomenon-stories-clarke-race.trycloudflare.com
+https://resources-except-summer-jet.trycloudflare.com
