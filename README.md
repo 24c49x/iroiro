@@ -1,1 +1,1 @@
-https://raw-funk-seeds-butter.trycloudflare.com
+https://ira-ease-trends-sega.trycloudflare.com
