@@ -1,1 +1,1 @@
-https://services-charger-org-string.trycloudflare.com
+https://quoted-gmbh-limits-swing.trycloudflare.com
