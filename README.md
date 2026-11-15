@@ -1,1 +1,1 @@
-https://collaboration-dist-node-soc.trycloudflare.com
+https://zone-realize-did-neural.trycloudflare.com
