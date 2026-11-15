@@ -1,1 +1,1 @@
-https://consequence-seats-arising-vote.trycloudflare.com
+https://corn-faces-indicates-mar.trycloudflare.com
