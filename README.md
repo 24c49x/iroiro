@@ -1,1 +1,1 @@
-https://lopez-safe-beneath-perfectly.trycloudflare.com
+https://services-charger-org-string.trycloudflare.com
