@@ -1,1 +1,1 @@
-https://license-soa-reality-judgment.trycloudflare.com
+https://tall-chassis-fell-launch.trycloudflare.com
