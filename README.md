@@ -1,1 +1,1 @@
-https://file-schedule-crm-initially.trycloudflare.com
+https://europe-syndication-codes-albums.trycloudflare.com
