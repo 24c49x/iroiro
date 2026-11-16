@@ -1,1 +1,1 @@
-https://vid-experimental-isp-hayes.trycloudflare.com
+https://expand-ranked-america-milwaukee.trycloudflare.com
