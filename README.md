@@ -1,1 +1,1 @@
-https://ltd-adipex-ethernet-contrast.trycloudflare.com
+https://vid-experimental-isp-hayes.trycloudflare.com
