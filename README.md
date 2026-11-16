@@ -1,1 +1,1 @@
-https://ballot-garmin-acquire-ranch.trycloudflare.com
+https://license-soa-reality-judgment.trycloudflare.com
