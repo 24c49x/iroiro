@@ -1,1 +1,1 @@
-https://challenges-bird-malpractice-region.trycloudflare.com
+https://revolution-until-allowed-rows.trycloudflare.com
