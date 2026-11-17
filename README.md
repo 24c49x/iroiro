@@ -1,1 +1,1 @@
-https://ambassador-treaty-outer-certification.trycloudflare.com
+https://possible-abilities-journalist-substances.trycloudflare.com
