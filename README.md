@@ -1,1 +1,1 @@
-https://picture-railroad-feature-pull.trycloudflare.com
+https://ambassador-treaty-outer-certification.trycloudflare.com
