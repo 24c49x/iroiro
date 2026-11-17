@@ -1,1 +1,1 @@
-https://house-boot-affected-recycling.trycloudflare.com
+https://generous-instances-res-argue.trycloudflare.com
