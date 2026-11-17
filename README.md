@@ -1,1 +1,1 @@
-https://mic-brad-plus-pound.trycloudflare.com
+https://minds-beyond-terrorists-frozen.trycloudflare.com
