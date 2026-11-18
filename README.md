@@ -1,1 +1,1 @@
-https://admitted-targets-ongoing-recently.trycloudflare.com
+https://ties-initially-anytime-durham.trycloudflare.com
