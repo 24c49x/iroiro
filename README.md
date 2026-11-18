@@ -1,1 +1,1 @@
-https://hints-celebration-buffalo-midlands.trycloudflare.com
+https://tales-estimates-reseller-enabling.trycloudflare.com
