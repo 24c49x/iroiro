@@ -1,1 +1,1 @@
-https://sbjct-hub-dec-munich.trycloudflare.com
+https://share-admission-constitute-les.trycloudflare.com
