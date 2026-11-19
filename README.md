@@ -1,1 +1,1 @@
-https://thanks-cigarette-inches-symbol.trycloudflare.com
+https://sbjct-hub-dec-munich.trycloudflare.com
