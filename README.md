@@ -1,1 +1,1 @@
-https://partial-urw-loans-continuing.trycloudflare.com
+https://tub-programming-automotive-str.trycloudflare.com
