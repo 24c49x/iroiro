@@ -1,1 +1,1 @@
-https://banners-editor-wood-relation.trycloudflare.com
+https://outdoor-minimum-aka-existing.trycloudflare.com
