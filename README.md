@@ -1,1 +1,1 @@
-https://equations-june-establish-proven.trycloudflare.com
+https://trails-tire-amanda-saturn.trycloudflare.com
