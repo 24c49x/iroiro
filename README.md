@@ -1,1 +1,1 @@
-https://recognized-delegation-seed-accommodations.trycloudflare.com
+https://simpson-recorders-ipod-webmasters.trycloudflare.com
