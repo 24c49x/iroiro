@@ -1,1 +1,1 @@
-https://archive-stolen-host-trends.trycloudflare.com
+https://departments-tue-development-parties.trycloudflare.com
