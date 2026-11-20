@@ -1,1 +1,1 @@
-https://faculty-validity-prep-converted.trycloudflare.com
+https://examined-vocals-directive-item.trycloudflare.com
