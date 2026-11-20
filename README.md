@@ -1,1 +1,1 @@
-https://exciting-cant-names-bearing.trycloudflare.com
+https://effectively-ensures-loading-boost.trycloudflare.com
