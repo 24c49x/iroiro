@@ -1,1 +1,1 @@
-https://grown-kde-impacts-heaven.trycloudflare.com
+https://equations-june-establish-proven.trycloudflare.com
