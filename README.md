@@ -1,1 +1,1 @@
-https://social-tiger-endorsement-receiving.trycloudflare.com
+https://minority-wherever-deadline-execute.trycloudflare.com
