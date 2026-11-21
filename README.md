@@ -1,1 +1,1 @@
-https://realized-exceptional-seal-bunch.trycloudflare.com
+https://incorporated-platforms-hit-streaming.trycloudflare.com
