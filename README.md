@@ -1,1 +1,1 @@
-https://alias-franklin-favors-craft.trycloudflare.com
+https://translations-guitars-announcement-barry.trycloudflare.com
