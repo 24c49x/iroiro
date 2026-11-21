@@ -1,1 +1,1 @@
-https://basket-purpose-leu-invest.trycloudflare.com
+https://wax-resource-tubes-blowing.trycloudflare.com
