@@ -1,1 +1,1 @@
-https://wax-resource-tubes-blowing.trycloudflare.com
+https://realized-exceptional-seal-bunch.trycloudflare.com
