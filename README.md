@@ -1,1 +1,1 @@
-https://prohibited-boss-wishes-automatic.trycloudflare.com
+https://diamond-metallica-list-cruise.trycloudflare.com
