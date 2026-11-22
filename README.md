@@ -1,1 +1,1 @@
-https://satin-atomic-amenities-cancellation.trycloudflare.com
+https://confirmed-cure-smtp-basement.trycloudflare.com
