@@ -1,1 +1,1 @@
-https://supervision-recreation-firefox-promotion.trycloudflare.com
+https://investigations-filme-allowance-tone.trycloudflare.com
