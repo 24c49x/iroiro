@@ -1,1 +1,1 @@
-https://those-bangkok-excited-stanford.trycloudflare.com
+https://that-newer-generations-stronger.trycloudflare.com
