@@ -1,1 +1,1 @@
-https://round-kansas-file-eastern.trycloudflare.com
+https://kurt-thermal-sequence-safari.trycloudflare.com
