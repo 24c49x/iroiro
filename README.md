@@ -1,1 +1,1 @@
-https://tuner-impose-forgot-scoring.trycloudflare.com
+https://mineral-lists-laws-alternatively.trycloudflare.com
