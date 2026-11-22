@@ -1,1 +1,1 @@
-https://finance-posts-treasure-thread.trycloudflare.com
+https://translator-impression-accepts-excited.trycloudflare.com
