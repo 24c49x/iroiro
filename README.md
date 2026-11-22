@@ -1,1 +1,1 @@
-https://mineral-lists-laws-alternatively.trycloudflare.com
+https://persistent-lectures-giving-loading.trycloudflare.com
