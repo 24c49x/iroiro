@@ -1,1 +1,1 @@
-https://describing-isbn-assets-cartridge.trycloudflare.com
+https://emacs-recipe-suburban-repeat.trycloudflare.com
