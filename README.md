@@ -1,1 +1,1 @@
-https://sustained-proposition-necessity-thumbs.trycloudflare.com
+https://plug-learned-booking-coins.trycloudflare.com
