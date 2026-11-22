@@ -1,1 +1,1 @@
-https://anna-cups-bryan-tender.trycloudflare.com
+https://describing-isbn-assets-cartridge.trycloudflare.com
