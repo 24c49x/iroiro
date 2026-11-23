@@ -1,1 +1,1 @@
-https://leaving-trek-analog-deals.trycloudflare.com
+https://wax-diego-response-rack.trycloudflare.com
