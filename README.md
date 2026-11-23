@@ -1,1 +1,1 @@
-https://spot-satisfaction-publishers-cannon.trycloudflare.com
+https://fun-thumbs-power-crafts.trycloudflare.com
