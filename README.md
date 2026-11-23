@@ -1,1 +1,1 @@
-https://adipex-src-freebsd-appointment.trycloudflare.com
+https://greatly-watershed-poster-garage.trycloudflare.com
