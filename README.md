@@ -1,1 +1,1 @@
-https://seventh-linear-dallas-monthly.trycloudflare.com
+https://laundry-expenses-assumes-cure.trycloudflare.com
