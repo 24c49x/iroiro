@@ -1,1 +1,1 @@
-https://laundry-expenses-assumes-cure.trycloudflare.com
+https://embedded-benz-teenage-org.trycloudflare.com
