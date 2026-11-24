@@ -1,1 +1,1 @@
-https://assigned-list-lisa-servers.trycloudflare.com
+https://analyst-creature-lawrence-pair.trycloudflare.com
