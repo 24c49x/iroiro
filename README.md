@@ -1,1 +1,1 @@
-https://humans-measure-twins-reach.trycloudflare.com
+https://net-americas-sims-traveling.trycloudflare.com
