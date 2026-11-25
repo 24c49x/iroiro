@@ -1,1 +1,1 @@
-https://basin-leaving-club-inns.trycloudflare.com
+https://tsunami-gone-blog-innovation.trycloudflare.com
