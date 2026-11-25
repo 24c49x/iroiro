@@ -1,1 +1,1 @@
-https://cartridges-passenger-steel-highest.trycloudflare.com
+https://indicated-civilization-streaming-seeing.trycloudflare.com
