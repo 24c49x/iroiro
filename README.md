@@ -1,1 +1,1 @@
-https://championships-reviewer-dual-plus.trycloudflare.com
+https://gates-strategic-nylon-prairie.trycloudflare.com
