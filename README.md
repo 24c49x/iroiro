@@ -1,1 +1,1 @@
-https://spice-barry-rays-medicine.trycloudflare.com
+https://patient-effort-load-contamination.trycloudflare.com
