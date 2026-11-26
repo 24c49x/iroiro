@@ -1,1 +1,1 @@
-https://ethnic-freight-mining-significantly.trycloudflare.com
+https://championships-reviewer-dual-plus.trycloudflare.com
