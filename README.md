@@ -1,1 +1,1 @@
-https://tsunami-gone-blog-innovation.trycloudflare.com
+https://medicare-install-does-indexes.trycloudflare.com
