@@ -1,1 +1,1 @@
-https://bow-friday-swimming-since.trycloudflare.com
+https://vacations-stranger-canyon-lonely.trycloudflare.com
