@@ -1,1 +1,1 @@
-https://howto-mounted-plots-serves.trycloudflare.com
+https://shots-enjoying-whereas-appearance.trycloudflare.com
