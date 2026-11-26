@@ -1,1 +1,1 @@
-https://merger-property-genome-viewing.trycloudflare.com
+https://howto-mounted-plots-serves.trycloudflare.com
